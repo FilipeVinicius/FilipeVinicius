@@ -22,7 +22,7 @@
  
  ## Contact
 
-  Linkedin: [Filipe Vinicius](https://www.linkedin.com/in/filipe-vinicius-75b5b6271/)
+  Linkedin: [Filipe Vinicius](https://www.linkedin.com/in/filipevinicius/)
   
   
   
